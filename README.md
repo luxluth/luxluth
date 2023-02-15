@@ -1,3 +1,3 @@
 UwU
 
-[luxluth.dev](https://www.luxluth.dev)
+[luxluth.dev](https://luxluth.dev)
